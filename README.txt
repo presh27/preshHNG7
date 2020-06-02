@@ -1,0 +1,1 @@
+Hello, I am Amadi Precious Oluchi and a Part of HNG7, i hope to make it through to the finals.
